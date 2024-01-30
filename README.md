@@ -1,2 +1,2 @@
-Bonjour GEMA IA school
-IA DATA analyst
+Bonjour Je suis Bamba 
+Etudiant a IA school
